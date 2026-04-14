@@ -34,4 +34,5 @@ Favorite ships : Devsuer,DigniZuka,IntrovertTricks,SunWillow,and probably some o
 
 Idk what else to put okay byeEeeE
 
+
 ![Screenshot_20260412_174936_Chrome](https://github.com/user-attachments/assets/f9820499-6d7a-4fe1-8474-7d41c77a88e5)
